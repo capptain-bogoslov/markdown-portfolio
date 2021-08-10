@@ -1,1 +1,1 @@
-[The Capptain] (https://thecapptain.com)
+[The Capptain](https://thecapptain.com)
